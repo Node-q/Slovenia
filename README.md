@@ -11,7 +11,7 @@ Link utili:
 
 Itinerario completo
 
-![Firenze-Croazia](https://github.com/user-attachments/assets/c398e402-de49-486e-b6e8-3d192dcb76a9)
+![Firenze-Croazia](https://github.com/user-attachments/assets/51d9bdf3-e252-4e97-afc2-2f61839c66e5)
 
 ---
 ### **Giorno 1: 10 agosto - Partenza da Firenze e arrivo nella Soča River Valley**
