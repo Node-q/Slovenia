@@ -68,7 +68,7 @@ Lubiana
 
 Camping Sobec
 
-![[292490444_455928653203387_3688168531398442485_n.jpg]]
+![292490444_455928653203387_3688168531398442485_n](https://github.com/user-attachments/assets/30efb3ab-47fd-4f63-8b54-fc9f043a466f)
 
 ---
 ### **Giorno 6: 15 agosto - Trasferimento a Novalja, Croazia**
@@ -81,7 +81,7 @@ Camping Sobec
 
 Novalja
 
-![[Novalja.jpg]]
+![Novalja](https://github.com/user-attachments/assets/a73d8da8-d5a2-4df3-8b89-bba848a9ce25)
 
 ---
 ### **Giorno 7: 16 agosto - Giornata nei dintorni di Novalja**
@@ -92,7 +92,7 @@ Novalja
 
 Sakarun Beach
 
-![[1565007069.jpg]]
+![1565007069](https://github.com/user-attachments/assets/d2bd9a20-493f-42f9-8bf0-87fa79b46267)
 
 ---
 ### **Giorno 8: 17 agosto - Ritorno a Firenze**
