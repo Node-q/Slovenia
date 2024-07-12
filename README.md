@@ -10,12 +10,6 @@ Link utili:
 
 Itinerario completo
 
-![ales-krivec-3LtGq_RPcY-unsplash](https://github.com/user-attachments/assets/65b30a57-5577-4aff-bc21-5ddfce319853)
-![Lago-di-Bled](https://github.com/user-attachments/assets/70149c54-1bc9-4833-9063-b89082e9cefa)
-![292490444_455928653203387_3688168531398442485_n](https://github.com/user-attachments/assets/cf0e23b6-e855-4ce4-b7e1-ca99c0181b42)
-![Ljubljana_made_by_Janez_Kotar](https://github.com/user-attachments/assets/fc254e68-9f12-465a-91df-0bcca8ead2df)
-![1](https://github.com/user-attachments/assets/e1d787f7-144e-490b-8be0-fdd21c60dd3a)
-
 ![Firenze-Croazia](https://github.com/user-attachments/assets/c398e402-de49-486e-b6e8-3d192dcb76a9)
 
 ---
