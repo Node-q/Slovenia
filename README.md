@@ -23,7 +23,7 @@ Itinerario completo
 
 Valle del fiume Soča
 
-![[1.jpg]]
+![1](https://github.com/user-attachments/assets/46dfd5a7-2ad8-4040-be10-39c98a7f3b6a)
 
 ---
 ### **Giorno 2: 11 agosto - Esplorazione della Soča River Valley**
@@ -43,7 +43,7 @@ Valle del fiume Soča
 
 Lago di Bled
 
-![[Lago-di-Bled 1.jpg]]
+![Lago-di-Bled](https://github.com/user-attachments/assets/2181abc9-1cbc-4c52-acbe-fb03ac978258)
 
 ---
 ### **Giorno 4: 13 agosto - Esplorazione del Lago di Bled**
@@ -64,7 +64,7 @@ Lago di Bled
 
 Lubiana
 
-![[Ljubljana_made_by_Janez_Kotar.jpg]]
+![Ljubljana_made_by_Janez_Kotar](https://github.com/user-attachments/assets/1e7e4da7-8348-4455-85c4-51e3f978ca9e)
 
 Camping Sobec
 
