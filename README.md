@@ -36,7 +36,7 @@ Valle del fiume Soča
 ---
 ### **Giorno 3: 12 agosto - Trasferimento al Lago di Bled**
 
-*Durata tragitto: 2 ore
+*Durata tragitto: 2 ore*
 
 - **Viaggio**: Trasferimento in macchina al Lago di Bled.
 - **Camping**: Sistemazione al Camping Bled, vicino al lago.
@@ -56,7 +56,7 @@ Lago di Bled
 ---
 ### **Giorno 5: 14 agosto - Trasferimento a Lubiana**
 
-*Durata tragitto: 1 ora
+*Durata tragitto: 1 ora*
 
 - **Viaggio**: Trasferimento in macchina a Lubiana (circa 1 ora di viaggio).
 - **Camping**: Sistemazione al CampingSobec.
@@ -74,7 +74,7 @@ Camping Sobec
 ---
 ### **Giorno 6: 15 agosto - Trasferimento a Novalja, Croazia**
 
-*Durata tragitto: 4 ore 40 minuti
+*Durata tragitto: 4 ore 40 minuti*
 
 - **Viaggio**: Trasferimento in macchina a Novalja sull'isola di Pag, Croazia.
 - **Camping**: Sistemazione al Camping Straško.
@@ -98,7 +98,7 @@ Sakarun Beach
 ---
 ### **Giorno 8: 17 agosto - Ritorno a Firenze**
 
-*Durata tragitto: 8 ore
+*Durata tragitto: 8 ore*
 
 - **Viaggio**: Partenza in macchina per il ritorno a Firenze (circa 6-7 ore di viaggio).
 - **Attività diurna**: Eventuale sosta lungo il percorso per riposarsi e pranzare.
