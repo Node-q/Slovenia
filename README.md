@@ -31,7 +31,7 @@ Valle del fiume Soča
 
 *Durata tragitto: 2 ore*
 
-- **Attività diurna**: Escursione lungo il fiume Soča, rafting o kayak, visita al Museo di Kobarid.
+- **Attività diurna**: Escursione sul Monte Nero.
 - **Attività serale**: Trasferimento e sistemazione al lago di Bled.
 
 ---
