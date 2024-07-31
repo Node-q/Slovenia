@@ -41,14 +41,16 @@ Lago del Monte Nero
 ---
 ### **Giorno 3: 12 agosto - Gola Vintgard - Lago di Bled - Trasferimento a Lubiana**
 
-*Durata tragitto: 1 ora*
-
 - **Attività diurna**: Escursione nella gola di Vintgard, esplorazione del lago di Bled.
 - **Attività serale**: Serata a Lubiana.
 
 Lago di Bled
 
 ![Lago-di-Bled](https://github.com/user-attachments/assets/2181abc9-1cbc-4c52-acbe-fb03ac978258)
+
+Soteska Vintgar
+
+![caption](https://github.com/user-attachments/assets/eceb045b-5f0f-4d82-89ba-e02bce8db499)
 
 ---
 ### **Giorno 4: 13 agosto - Esplorazione di Lubiana**
