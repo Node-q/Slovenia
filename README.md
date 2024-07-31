@@ -32,7 +32,7 @@ Valle del fiume Soča
 *Durata tragitto: 2 ore*
 
 - **Attività diurna**: Escursione lungo il fiume Soča, rafting o kayak, visita al Museo di Kobarid.
-- **Attività serale**: Trasferimento al lago di Bled e sistemazione al lago di Bled.
+- **Attività serale**: Trasferimento e sistemazione al lago di Bled.
 
 ---
 ### **Giorno 3: 12 agosto - Gola Vintgard - Lago di Bled - Trasferimento a Lubiana**
