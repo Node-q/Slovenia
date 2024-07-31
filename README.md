@@ -5,7 +5,7 @@ Note importanti:
 - Le tappe non sono molto distanti l'un dall'altra una volta arrivati in Slovenia.
 
 Link utili:
-- Itinerario: [https://maps.app.goo.gl/NCLVkZyaKT5fCan16](https://maps.app.goo.gl/TSvpDsyQKRoXVpkh6)
+- Itinerario: https://maps.app.goo.gl/8fj1EyxyUvLtz9ke6
 - Festival in Slovenia: https://www.instagram.com/drops_fest / https://drops-festival.com/
 - Festival in Croazia: https://www.barrakud.com/
 
