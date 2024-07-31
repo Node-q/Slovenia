@@ -14,12 +14,12 @@ Itinerario completo
 ![Firenze-Croazia](https://github.com/user-attachments/assets/51d9bdf3-e252-4e97-afc2-2f61839c66e5)
 
 ---
-### **Giorno 1: 10 agosto - Partenza da Firenze e arrivo nella Soča River Valley**
+### **Giorno 1: 10 agosto - Partenza da Firenze e arrivo a Caporetto**
 
-*Durata tragitto: 5 ore 30 minuti*
+*Durata tragitto: 5 ore 9 minuti*
 
-- **Viaggio**: Partenza in macchina da Firenze verso la Soča River Valley in Slovenia.
-- **Camping**: Sistemazione al Camping Koren, vicino a Kobarid.
+- **Viaggio**: Partenza in macchina da Firenze verso Caporetto in Slovenia.
+- **Attività diurna**: Sistemazione al Camping, visita al Museo di Caporetto.
 - **Attività serale**: Cena in campeggio o in un ristorante locale, passeggiata serale lungo il fiume Soča.
 
 Valle del fiume Soča
@@ -27,39 +27,28 @@ Valle del fiume Soča
 ![1](https://github.com/user-attachments/assets/46dfd5a7-2ad8-4040-be10-39c98a7f3b6a)
 
 ---
-### **Giorno 2: 11 agosto - Esplorazione della Soča River Valley**
-
-- **Attività diurna**: Escursione lungo il fiume Soča, rafting o kayak, visita al Museo di Kobarid.
-- **Camping**: Ritorno al Camping Koren.
-- **Attività serale**: Relax in campeggio.
-
----
-### **Giorno 3: 12 agosto - Trasferimento al Lago di Bled**
+### **Giorno 2: 11 agosto - Trekking - Trasferimento al Lago di Bled**
 
 *Durata tragitto: 2 ore*
 
-- **Viaggio**: Trasferimento in macchina al Lago di Bled.
-- **Camping**: Sistemazione al Camping Bled, vicino al lago.
-- **Attività serale**: Cena in un ristorante locale con vista sul lago, passeggiata serale lungo la riva del lago.
+- **Attività diurna**: Escursione lungo il fiume Soča, rafting o kayak, visita al Museo di Kobarid.
+- **Attività serale**: Trasferimento al lago di Bled e sistemazione al lago di Bled.
+
+---
+### **Giorno 3: 12 agosto - Gola Vintgard - Lago di Bled - Trasferimento a Lubiana**
+
+*Durata tragitto: 1 ora*
+
+- **Attività diurna**: Escursione nella gola di Vintgard, esplorazione del lago di Bled.
+- **Attività serale**: Serata a Lubiana.
 
 Lago di Bled
 
 ![Lago-di-Bled](https://github.com/user-attachments/assets/2181abc9-1cbc-4c52-acbe-fb03ac978258)
 
 ---
-### **Giorno 4: 13 agosto - Esplorazione del Lago di Bled**
+### **Giorno 4: 13 agosto - Esplorazione di Lubiana**
 
-- **Attività diurna**: Giro in barca fino all'isola di Bled, visita alla chiesa dell'Assunzione di Maria, escursione al Castello di Bled, nuoto nel lago.
-- **Camping**: Ritorno al Camping Bled.
-- **Attività serale**: Musica dal vivo nei bar locali, eventi estivi sul lungolago.
-
----
-### **Giorno 5: 14 agosto - Trasferimento a Lubiana**
-
-*Durata tragitto: 1 ora*
-
-- **Viaggio**: Trasferimento in macchina a Lubiana (circa 1 ora di viaggio).
-- **Camping**: Sistemazione al CampingSobec.
 - **Attività diurna**: Visita al centro storico di Lubiana, Castello di Lubiana, Parco Tivoli.
 - **Attività serale**: Cena in uno dei ristoranti lungo il fiume Ljubljanica, visita ai bar e locali della città.
 
@@ -70,6 +59,11 @@ Lubiana
 Camping Sobec
 
 ![292490444_455928653203387_3688168531398442485_n](https://github.com/user-attachments/assets/30efb3ab-47fd-4f63-8b54-fc9f043a466f)
+
+---
+### **Giorno 5: 14 agosto - Jolly**
+
+*Durata tragitto: 1 ora*
 
 ---
 ### **Giorno 6: 15 agosto - Trasferimento a Novalja, Croazia**
