@@ -34,6 +34,10 @@ Valle del fiume Soča
 - **Attività diurna**: Escursione sul Monte Nero.
 - **Attività serale**: Trasferimento e sistemazione al lago di Bled.
 
+Lago del Monte Nero
+
+![img20210912123523](https://github.com/user-attachments/assets/abfdd9dd-f4d4-48fe-b206-a4edb87099ca)
+
 ---
 ### **Giorno 3: 12 agosto - Gola Vintgard - Lago di Bled - Trasferimento a Lubiana**
 
