@@ -62,14 +62,12 @@ Lubiana
 
 ![Ljubljana_made_by_Janez_Kotar](https://github.com/user-attachments/assets/1e7e4da7-8348-4455-85c4-51e3f978ca9e)
 
-Camping Sobec
-
-![292490444_455928653203387_3688168531398442485_n](https://github.com/user-attachments/assets/30efb3ab-47fd-4f63-8b54-fc9f043a466f)
-
 ---
 ### **Giorno 5: 14 agosto - Jolly**
 
-*Durata tragitto: 1 ora*
+Da scegliere:
+- Boat party in Croazia.
+- Un'altra tappa in Slovenia
 
 ---
 ### **Giorno 6: 15 agosto - Trasferimento a Novalja, Croazia**
